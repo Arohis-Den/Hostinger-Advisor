@@ -8,9 +8,9 @@ This guide focuses on helping first-time buyers understand which Hostinger deals
 
 | Deal Type | Discount Range | Applies To | Verified for New Users | Claim Now |
 |---------|---------------|-----------|------------------------|-----------|
-| New user signup discount | Up to 86% | Shared, WordPress, Cloud | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| Free domain offer | Included with select plans | Annual plans | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
-| Seasonal promotions | 60%–80% | Limited-time offers | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| New user signup Hostinger discount | Up to 86% | Shared, WordPress, Cloud | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| Hostinger Free domain offer | Included with select plans | Annual plans | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
+| Hostinger Seasonal promotions | 60%–80% | Limited-time offers | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
 | Long-term billing savings | Extra reductions | 12–48 month plans | Yes | [Claim Now](https://hostinger.in?REFERRALCODE=WEBPRO2025) |
 
 This table gives a fast snapshot. The sections below explain how to unlock each benefit step by step.
