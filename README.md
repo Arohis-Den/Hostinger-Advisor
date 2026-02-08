@@ -4,6 +4,8 @@
 
 This guide focuses on helping first-time buyers understand which Hostinger deals work in Feb 2026, how to apply them correctly, and which plan gives the best value without confusion.
 
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+
 ## Quick Summary Table: Hostinger Discounts for First-Time Users (Feb 2026)
 
 | Deal Type | Discount Range | Applies To | Verified for New Users | Claim Now |
@@ -38,13 +40,19 @@ The main **Hostinger coupon code for first-time users** applies automatically wh
 
 This discount offers the highest price reduction and works best with longer billing terms.
 
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+
 ### Seasonal and Promotional Deals
 
-Hostinger runs limited-time promotions during sales periods. These offers stack with new user pricing but change often. A curated list of current options appears in this **[Hostinger Promo Code List](https://github.com/Akshay-dev2/frontend-design-lab)**, which helps track active campaigns.
+Hostinger runs limited-time promotions during sales periods. These offers stack with new user pricing but change often. By using these **[Hostinger Promo Codes](https://github.com/Akshay-dev2/frontend-design-lab)**, you can end up saving up to 95% .
+
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ### Free Domain Offers
 
 Some annual plans include a free domain for the first year. This reduces upfront cost and simplifies setup for beginners.
+
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ## How to Apply a Hostinger Coupon Code (Tested Steps for 2026)
 
@@ -52,7 +60,9 @@ These steps reflect the current checkout flow tested in 2026.
 
 ### Step 1: Choose the Right Hosting Category
 
-Visit Hostinger and select shared hosting or WordPress hosting if this is your first site. VPS plans suit advanced users, not beginners.
+Visit **[Hostinger's discount page](https://hostinger.in?REFERRALCODE=WEBPRO2025)** and select shared hosting or WordPress hosting if this is your first site. VPS plans suit advanced users, not beginners.
+
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ### Step 2: Select the Billing Term
 
@@ -66,7 +76,7 @@ Use a fresh email address. Hostinger applies the first-time discount automatical
 
 Confirm that the reduced price shows before payment. If pricing looks high, restart the process in a private browser window.
 
-For additional guidance and screenshots, this resource on **[Hostinger Coupon Codes](https://github.com/anil-writes/Hostinger-Guides/)** explains the flow in detail.
+Note: The Hostinger **discount will be automatically applied** if you use the verified **[direct discount link](https://hostinger.in?REFERRALCODE=WEBPRO2025)** from this page.
 
 ## Choosing the Best Hostinger Plan as a First-Time User
 
