@@ -2,7 +2,7 @@
 
 **Hostinger coupon code for first-time users** is one of the most searched phrases by beginners planning to launch their first website in 2026. Hosting prices vary widely, and choosing the wrong plan without a working discount often leads to overspending.
 
-This guide focuses on helping first-time buyers understand which Hostinger deals work in Feb 2026, how to apply them correctly, and which plan gives the best value without confusion.
+This guide focuses on helping first-time buyers understand which **Hostinger deals work in Feb 2026**, how to apply them correctly, and which plan gives the best value without confusion.
 
 [<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
@@ -29,6 +29,8 @@ Key reasons beginners choose Hostinger include:
 - A custom control panel designed for non-technical users  
 
 These factors reduce early mistakes that often frustrate new site owners.
+
+[<img width="230" height="132" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ## Types of Hostinger Coupon Codes Available for New Users
 
@@ -61,8 +63,6 @@ These steps reflect the current checkout flow tested in 2026.
 ### Step 1: Choose the Right Hosting Category
 
 Visit **[Hostinger's discount page](https://hostinger.in?REFERRALCODE=WEBPRO2025)** and select shared hosting or WordPress hosting if this is your first site. VPS plans suit advanced users, not beginners.
-
-[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ### Step 2: Select the Billing Term
 
