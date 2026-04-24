@@ -4,7 +4,7 @@
 
 This guide focuses on helping first-time buyers understand which **Hostinger deals work in Feb 2026**, how to apply them correctly, and which plan gives the best value without confusion.
 
-[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="132" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+[<img src="https://github.com/user-attachments/assets/9925caa8-4c73-4f69-b427-f06888628ad9" width="230" height="50" alt="Claim Now" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ## Quick Summary Table: Hostinger Discounts for First-Time Users (Feb 2026)
 
