@@ -30,7 +30,7 @@ Key reasons beginners choose Hostinger include:
 
 These factors reduce early mistakes that often frustrate new site owners.
 
-[<img width="230" height="132" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+[<img width="230" height="30" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
 
 ## Types of Hostinger Coupon Codes Available for New Users
 
