@@ -128,7 +128,11 @@ WordPress plans include platform-specific tuning. These plans suit bloggers and 
 
 VPS hosting offers more control but adds complexity. New users rarely need this level of access. You can always move later.
 
-[<img width="230" height="132" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+<div align="center">
+  <a href="https://hostinger.in?REFERRALCODE=WEBPRO2025">
+    <img width="230" height="50" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />
+  </a>
+</div>
 
 ## Performance Expectations in 2026
 
@@ -174,7 +178,11 @@ When traffic increases, you can switch plans and apply a **[Hostinger Coupon Cod
 
 This approach avoids migration headaches.
 
-[<img width="230" height="132" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />](https://hostinger.in?REFERRALCODE=WEBPRO2025)
+<div align="center">
+  <a href="https://hostinger.in?REFERRALCODE=WEBPRO2025">
+    <img width="230" height="50" alt="Sign Up Now" src="https://github.com/user-attachments/assets/ddf51efc-0a5d-4933-b830-36b7d16cc12a" />
+  </a>
+</div>
 
 ## Who Should Use Hostinger as a First Host?
 
