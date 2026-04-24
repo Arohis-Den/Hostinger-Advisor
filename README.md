@@ -46,7 +46,7 @@ Understanding deal types helps avoid confusion during checkout.
 
 ### New User Signup Discounts
 
-The main **[Hostinger coupon code for first-time users](https://hostinger-coupon-code.mystrikingly.com/)** applies automatically when you create a new account. You do not need to paste a code in most cases. Hostinger detects new users by email and billing profile.
+The main **[Hostinger Discount](https://devgraphiq.com/hostinger-coupon-code/)** applies automatically when you create a new account. You do not need to paste a code in most cases. Hostinger detects new users by email and billing profile.
 
 This discount offers the highest price reduction and works best with longer billing terms.
 
